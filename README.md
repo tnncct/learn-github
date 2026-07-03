@@ -1,1 +1,2 @@
 # learn-github
+Anutin Charnvirakul, M.P.Ch., M.W.M., R.N.P., W.P.R. Class 3 (honorific decorations), nicknamed "Noo" (Nu), is a Thai businessman and politician. He is the 32nd Prime Minister of Thailand, the Minister of Interior, a party-list Member of the House of Representatives, and the leader of the Bhumjaithai Party. He previously served as Deputy Prime Minister and has held ministerial positions in several ministries.
